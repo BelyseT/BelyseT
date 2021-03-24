@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BelyseT
-- 👀 I’m interested in project management and little bit programming
+- 👀 I’m interested in project management and a little bit programming
 - 🌱 I’m currently learning information systems
 - 💞️ I’m looking to collaborate on anything concerns Tech
 - 📫 How to reach me email: ishimwebelyse2@gmail.com
